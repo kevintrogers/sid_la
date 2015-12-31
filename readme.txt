@@ -1,0 +1,1 @@
+This is the ReadMe file for Society for Information Display Los Angeles Chapter.
